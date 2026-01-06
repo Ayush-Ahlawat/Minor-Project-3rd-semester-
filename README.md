@@ -1,4 +1,4 @@
-# Minor-Project-3rd-semester-
+# Minor-Project-6th-semester-
 We are making a project for our pre final semester , here all the all details regarding this project.
 
 Ayush Ahlawat (2301010001)
